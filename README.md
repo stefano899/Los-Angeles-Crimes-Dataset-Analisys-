@@ -1,4 +1,3 @@
-![Los Angeles skyline](la_skyline.jpg)
 
 Los Angeles, California 😎. The City of Angels. Tinseltown. The Entertainment Capital of the World! 
 
